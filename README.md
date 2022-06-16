@@ -7,13 +7,13 @@
 
 - 🌱 I’m currently learning **MERN Stack**
 
-- 👨‍💻 All of my projects are available at [https://github.com/tgovani426](https://github.com/tgovani426)
+- 👨‍💻 All of my projects are available at [:school_satchel:](https://github.com/tgovani426?tab=repositories)
 
 - 💬 Ask me about **Anything 😜**
 
 - 📫 How to reach me **LinkedIn**
 
-- 📄 Know about my experiences [Here](https://drive.google.com/file/d/1zZXjXskSh7-Z1_RWXqj_9I2m6kt0d7V6/view?usp=sharing)
+- 📄 Know about my experiences [:envelope:](https://drive.google.com/file/d/1zZXjXskSh7-Z1_RWXqj_9I2m6kt0d7V6/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
