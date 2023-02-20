@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Anything 😜**
 
-- 📫 How to reach me [**LinkedIn**](https://linkedin.com/in/tirth-govani)
+- 📫 Reach me on [**LinkedIn**](https://linkedin.com/in/tirth-govani)
 
 - 📄 Know about [my experiences](https://drive.google.com/file/d/1zZXjXskSh7-Z1_RWXqj_9I2m6kt0d7V6/view?usp=sharing)
 
