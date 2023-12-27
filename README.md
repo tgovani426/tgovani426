@@ -13,7 +13,6 @@
 
 - 📫 Reach me on [**LinkedIn**](https://linkedin.com/in/tirth-govani)
 
-- 📄 Know about [my experiences](https://drive.google.com/file/d/1zZXjXskSh7-Z1_RWXqj_9I2m6kt0d7V6/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
